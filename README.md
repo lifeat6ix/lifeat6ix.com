@@ -1,1 +1,1 @@
-# lifeat6ix.com
+# lifeat6ix.github.io
